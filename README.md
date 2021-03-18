@@ -1,0 +1,1 @@
+# GikM_storeplace
